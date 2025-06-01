@@ -35,5 +35,6 @@
 📫 Let's Connect
 
 📧 pallavilathavadlamudi@gmail.com
+
 🔗 LinkedIn: vadlamudipallavilatha www.linkedin.com/in/vadlamudipallavilatha
 
